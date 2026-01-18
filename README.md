@@ -8,4 +8,4 @@
 
 <p align="center">✧･ﾟ: *✧･ﾟ:*
   
-𖤐 allysa/eddie | she/her/they | respectfully, not a steddie shipper | not a roleplayer | artist/writer| semi-verbal/non-verbal | proship/darkship DNI | eddie is heavily my comfort character
+✥  c+h freely • heavily sensitive • do not copy my skins • i'm chill • please respect my boundaries as a non-sharing yume • dni proship  • not a roleplayer  • freely sign ata • semi verbal/non-verbal• do not interact trey doubles or ships • minors strictly dni i'm an adult
