@@ -6,7 +6,7 @@
 
 <p align="center">⋆.˚trey clover yumejoshi ♡‧₊˚
 
-06•03•2023
+<p align="center">06.03.2023
 
 <p align="center">✧･ﾟ: *✧･ﾟ:*
   
