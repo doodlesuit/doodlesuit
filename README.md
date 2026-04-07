@@ -10,4 +10,4 @@
 
 <p align="center">✧･ﾟ: *✧･ﾟ:*
   
-✥  c+h freely • heavily sensitive • do not copy my skins • i'm chill • please respect my boundaries as a non-sharing yume • dni proship  • not a roleplayer  • freely sign ata • semi verbal/non-verbal• do not interact trey doubles or ships • minors strictly dni i'm an adult • usually offtab
+✥  c+h freely • heavily sensitive • do not copy my skins • i'm chill • please respect my boundaries as a non-sharing yume • dni proship  • not a roleplayer  • freely sign ata • semi verbal/non-verbal• do not interact trey doubles or ships • minors strictly dni i'm an adult • usually offtab • don't force any ships with me respectfully
