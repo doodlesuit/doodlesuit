@@ -10,4 +10,4 @@
 
 <p align="center">✧･ﾟ: *✧･ﾟ:*
   
-✥  c+h freely • read rentry byi • do not copy my skins or take inspo of my shading style • i'm chill and just hang out in my fandom spaces • feel free to match with me • sign ata • i don't roleplay • do respect my boundaries as a non-sharing yume • strictly dni minors i'm an adult • dni proshippers • strictly dni trey doubles • dni romantic trey ships (unless i also ship it or you're a close friend or it's a platonic approach) ✥
+✥  c+h freely • read rentry byi • respect my boundaries as a non-sharing yume • freely match with me anytime • strictly dni trey doubles • dni trey ships (unless i also ship it or it's platonic) • i'm chill don't be scared chatting with me • please do not take inspo or copy my shading style 
