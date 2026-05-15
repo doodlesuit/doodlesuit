@@ -10,4 +10,4 @@
 
 <p align="center">✧･ﾟ: *✧･ﾟ:*
   
-✥  c+h freely • read rentry byi • respect my boundaries as a non-sharing yume • freely match with me anytime • strictly dni trey doubles • dni trey ships (unless i also ship it or it's platonic) • i'm chill don't be scared chatting with me • please do not take inspo or copy my shading style • more infos on my rentry • strictly dni minors i'm an adult • more infos on my [rentry](https://rentry.co/paintheroses) ☆ 
+✥  c+h freely • read rentry byi • respect my boundaries as a non-sharing yume • freely match with me anytime • strictly dni trey doubles • dni trey ships (unless i also ship it or it's platonic) • i'm chill don't be scared chatting with me • please do not take inspo or copy my shading style • will hide doubles • strictly dni minors i'm an adult • more infos on my [rentry](https://rentry.co/paintheroses) ☆ 
